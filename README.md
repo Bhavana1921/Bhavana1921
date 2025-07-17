@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about how a civil engineer got interested in tech 😄
 - 📫 How to reach me: (bhavanarn295@gmail.com)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I enjoy building things—whether it's a structure or a script!
+- ⚡ Fun fact: I enjoy building things—whether it's a st
